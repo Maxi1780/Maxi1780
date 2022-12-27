@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maxi1780
-- I life in Germany (Baden-Wuerttemberg)
+- 📍 I life in Germany (Baden-Wuerttemberg)
 - 👀 I’m interested in Minecraft 
 - 📫 How to reach me Insta: maxi.17807
 
